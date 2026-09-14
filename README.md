@@ -21,4 +21,4 @@ I'm also a **Computer Engineering** student at the **University of British Colum
 
 </details>
 
-Feel free to reach out anytime at `kvarenya@student.ubc.ca`
+Feel free to reach out anytime at `kumarvarenya85@gmail.com`
