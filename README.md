@@ -1,4 +1,4 @@
-## 👋 Hi there, I'm [Varenya](https://kvarenya.github.io)!
+## 👋 Hi there, I'm Varenya!
 
 I'm currently working at **[NA](...) building ...** Previously, I contributed at [...](...) & [...](...).
 
